@@ -16,4 +16,4 @@ Algumas informações sobre os vídeos:
 
 Informações pessoais:
 
-- Meu linkedin: https://www.linkedin.com/in/alexiapereira/
+- Linkedin da Professora Alexia Pereira: https://www.linkedin.com/in/alexiapereira/
